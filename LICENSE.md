@@ -1,4 +1,4 @@
-# 
+# Ligero Foxit PDF Editor preajustes para Mac OS | Nativo Foxit PDF Editor preajustes para PC Windows. Con compresión de PDF y reconocimiento OCR — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
